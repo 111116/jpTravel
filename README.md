@@ -4,6 +4,8 @@
 
 预计上海-大阪出发，东京-上海回来
 
+[别人的游记一篇](https://github.com/silensmile/Nippon/blob/master/README.md)
+
 ## 准备
 
 - 护照（检查有效期）
