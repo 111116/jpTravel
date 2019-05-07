@@ -116,4 +116,6 @@ You  can reach Nara easily from either Osaka or Kyoto, the key transit  points f
 -  Feeding some of the 1,000 tame deer of Nara Park
 
 
+<br/>
 
+*Source:* [https://www.japan.travel/en/](https://www.japan.travel/en/)
