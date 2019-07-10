@@ -19,39 +19,39 @@
 
 - 奈良公园？（鹿，东大寺
   <br> Open 24 hours everyday
-  No ticket for the park
-  Seperate tickets for some temples inside
+  <br> No ticket for the park
+  <br> Seperate tickets for some temples inside
 
 - 三条小锻冶本铺（刀男巡礼
-  Open 8:30~17:00 everyday
+  <br> Open 8:30~17:00 everyday
 
 - 大阪城
-  Park: Open 24 hours everyday
-  Castle: Open 9: 00~17:00 everyday
-  600 Yen
+  <br> Park: Open 24 hours everyday
+  <br> Castle: Open 9: 00~17:00 everyday
+  <br> 600 Yen
 
 ## 京都
 
 - 怀石料理；和果子
 
 - 清水寺
-  Open 6:00~18:30 everyday (close at 21:00 at special nights on 14-16 Aug)
-  400 Yen
+  <br> Open 6:00~18:30 everyday (close at 21:00 at special nights on 14-16 Aug)
+  <br> 400 Yen
   
 - 金阁寺？
-  Open 9:00~17:00 everyday
-  400 Yen
+  <br> Open 9:00~17:00 everyday
+  <br> 400 Yen
 
 - 南禅寺？
-  Open 8:40~17:00 everyday
-  500 Yen
+  <br> Open 8:40~17:00 everyday
+  <br> 500 Yen
   
 - 伏见稻荷大社？那个走廊类似物好像很有名
-  Open 24 hours everyday
-  Free
+  <br> Open 24 hours everyday
+  <br> Free
 
 - 岚山？
-  Free
+  <br> Free
 
 
 ## 东京
