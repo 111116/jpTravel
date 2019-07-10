@@ -18,7 +18,7 @@
 - 章鱼烧；御好烧；寿喜锅；天妇罗；串肉排
 
 - 奈良公园？（鹿，东大寺
-  Open 24 hours everyday
+  <br> Open 24 hours everyday
   No ticket for the park
   Seperate tickets for some temples inside
 
