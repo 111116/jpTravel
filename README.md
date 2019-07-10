@@ -17,21 +17,41 @@
 
 - 章鱼烧；御好烧；寿喜锅；天妇罗；串肉排
 
-- 奈良公园？（鹿，东大寺）
+- 奈良公园？（鹿，东大寺
+  Open 24 hours everyday
+  No ticket for the park
+  Seperate tickets for some temples inside
 
-- 三条小锻冶本铺（刀男巡礼）
+- 三条小锻冶本铺（刀男巡礼
+  Open 8:30~17:00 everyday
 
-- 大阪城？
+- 大阪城
+  Park: Open 24 hours everyday
+  Castle: Open 9: 00~17:00 everyday
+  600 Yen
 
 ## 京都
 
 - 怀石料理；和果子
 
-- 清水寺？金阁寺？南禅寺？
+- 清水寺
+  Open 6:00~18:30 everyday (close at 21:00 at special nights on 14-16 Aug)
+  400 Yen
+  
+- 金阁寺？
+  Open 9:00~17:00 everyday
+  400 Yen
 
+- 南禅寺？
+  Open 8:40~17:00 everyday
+  500 Yen
+  
 - 伏见稻荷大社？那个走廊类似物好像很有名
+  Open 24 hours everyday
+  Free
 
 - 岚山？
+  Free
 
 
 ## 东京
