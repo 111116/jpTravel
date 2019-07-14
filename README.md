@@ -61,24 +61,42 @@
 - 三鹰之森吉卜力美术馆 - 三鷹の森ジブリ美術館 (周二闭馆。五月底订票）
 
 - 秋叶原电器街
+  <br> most shops open at 9:00-11:00 and close at 19:00-22:00
 
 - 大江戸温泉物語？
+  <br> Open 11:00 to 9:00 next day, last entry 7:00, everyday
+  <br> 2720 Yen, 2936 Yen at weekends, 3044 Yen at special days
 
 - 浅草寺
+  <br> Main hall opens 6:00~17:00, ground 24 hours everyday
+  <br> Free
 
 - 明治神宫？
+  <br> "Sunrise to sunset", about 5:00~18:00 everyday
+  <br> Free
   
 - 东京国立博物馆（与周边的上野公园？）
+  <br> Open 9:30~17:00, last entry 16:30, everyday except Monday
+  <br> Open till 21:00 on Fridays and Saturdays
+  <br> Research and Information Center: Monday-Friday, 9:30-17:00
+  <br> 630 Yen, Special exhibitions require a separate admission fee
+  
+- （与周边的上野公园？）
+  <br> Open 5:00~23:00
 
 - 成田机场（白学圣地）
+  <br> 2333
 
 - 横滨/鶴見川花火大会？
+  <br> ???
 
 - 早稻田大学？
+  <br> ???
 
 - 东京大学？
 
 - 东京国际会展中心？
+  <br> Open 8:00~20:00
 
 ## 东京周边
 
